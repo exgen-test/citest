@@ -1,3 +1,3 @@
 # citest
 
-ookaonbu ‚ÅXV‚µ‚Ä‚İ‚é
+ookaonbu ã§æ›´æ–°ã—ã¦ã¿ã‚‹
